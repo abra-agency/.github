@@ -11,4 +11,4 @@ Welcome to Abra Agency, where we turn ideas into engaging, high-impact digital e
 
 With over a decade of experience, Abra Agency is trusted by clients across industries and geographies. Each project is a testament to our commitment to quality, creativity, and effective online presence. Explore our [portfolio](https://abra.agency/en/portfolio) for a closer look at our recent work.
 
-Let us help you make a lasting impression online! 🚀
+**Let us help you make a lasting impression online!** 🚀
